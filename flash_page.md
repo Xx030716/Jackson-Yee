@@ -10,7 +10,7 @@ TFBOYS组合的一名成员，同时也是一名歌手、舞者、演员
 这些从小打下的基础都为他以后的发展带来了很大帮助
 作为歌手，他发行过许多专辑，举办过演唱会，也获得过许多歌曲奖项，更有幸在雅加达亚运会闭幕式上演唱歌曲
 
-<img src="![a](https://user-images.githubusercontent.com/95908853/145554547-d6467760-1e66-42c4-89e4-a6e7ca8ed202.jpg)"width="400">
+![a](https://user-images.githubusercontent.com/95908853/145554547-d6467760-1e66-42c4-89e4-a6e7ca8ed202.jpg)
 ![b](https://user-images.githubusercontent.com/95908853/145554602-84994dd2-ec3a-4d4e-89b0-c82b647d9a20.jpg)
 
 
@@ -22,7 +22,7 @@ TFBOYS组合的一名成员，同时也是一名歌手、舞者、演员
 
 作为演员，他出演过《长安十二时辰》《少年的你》《送你一朵小红花》《中国医生》《长津湖》等，更是有幸在空军招飞宣传片中担任主角。他的这些影视作品都获得了不错的成绩，也让越来越多的人认识到了这个努力谦逊的新一代演技派
 
-<img src="![f](https://user-images.githubusercontent.com/95908853/145554749-47fb939c-fce1-4442-b309-656698bd2c5c.jpg)"width="400">
+![f](https://user-images.githubusercontent.com/95908853/145554749-47fb939c-fce1-4442-b309-656698bd2c5c.jpg)
 ![g](https://user-images.githubusercontent.com/95908853/145554794-41386ccc-b117-404f-aa51-e5385b25ebb6.jpg)
 ![j](https://user-images.githubusercontent.com/95908853/145554829-100e97b4-a69e-45bd-8335-129bce0741d7.jpg)
 ![h](https://user-images.githubusercontent.com/95908853/145554866-5aa6af8d-18bb-4c78-89dc-edf5170dff93.jpg)
