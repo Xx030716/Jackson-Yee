@@ -11,13 +11,13 @@ TFBOYS组合的一名成员，同时也是一名歌手、舞者、演员
 作为歌手，他发行过许多专辑，举办过演唱会，也获得过许多歌曲奖项，更有幸在雅加达亚运会闭幕式上演唱歌曲
 
 ![a](https://user-images.githubusercontent.com/95908853/145554547-d6467760-1e66-42c4-89e4-a6e7ca8ed202.jpg)
-![b](https://user-images.githubusercontent.com/95908853/145554602-84994dd2-ec3a-4d4e-89b0-c82b647d9a20.jpg)
+![b](https://user-images.githubusercontent.com/95908853/145558668-05b8132e-e3b7-4783-a26c-9b5de544f7dd.jpg)
 
 
 作为舞者，他自小就学习了多种舞种，并且拿到过无数国家奖项。他的自编舞蹈也曾创下播放记录，也曾担任队长带领战队夺得《这！就是街舞》的全国总冠军
 
 ![e](https://user-images.githubusercontent.com/95908853/145554644-dc0f2a54-671d-4427-8e9b-3c722a401178.jpg)
-![d](https://user-images.githubusercontent.com/95908853/145558519-450cf0ca-0dae-4347-be9c-cc9c0afbd26c.jpg)
+![d](https://user-images.githubusercontent.com/95908853/145558622-89b002c2-79a4-42db-800c-c1aa7bad755f.jpg)
 
 
 作为演员，他出演过《长安十二时辰》《少年的你》《送你一朵小红花》《中国医生》《长津湖》等，更是有幸在空军招飞宣传片中担任主角。他的这些影视作品都获得了不错的成绩，也让越来越多的人认识到了这个努力谦逊的新一代演技派
