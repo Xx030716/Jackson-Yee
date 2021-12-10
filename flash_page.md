@@ -17,16 +17,16 @@ TFBOYS组合的一名成员，同时也是一名歌手、舞者、演员
 作为舞者，他自小就学习了多种舞种，并且拿到过无数国家奖项。他的自编舞蹈也曾创下播放记录，也曾担任队长带领战队夺得《这！就是街舞》的全国总冠军
 
 ![e](https://user-images.githubusercontent.com/95908853/145554644-dc0f2a54-671d-4427-8e9b-3c722a401178.jpg)
-![d](https://user-images.githubusercontent.com/95908853/145554672-7323b2dc-099f-4ecf-8d41-db575ea1e6ca.jpg)
+![d](https://user-images.githubusercontent.com/95908853/145557341-0fcd4864-0fad-4242-9721-5f5c79350135.jpg)
 
 
 作为演员，他出演过《长安十二时辰》《少年的你》《送你一朵小红花》《中国医生》《长津湖》等，更是有幸在空军招飞宣传片中担任主角。他的这些影视作品都获得了不错的成绩，也让越来越多的人认识到了这个努力谦逊的新一代演技派
 
-![f](https://user-images.githubusercontent.com/95908853/145554749-47fb939c-fce1-4442-b309-656698bd2c5c.jpg)
-![g](https://user-images.githubusercontent.com/95908853/145554794-41386ccc-b117-404f-aa51-e5385b25ebb6.jpg)
-![j](https://user-images.githubusercontent.com/95908853/145554829-100e97b4-a69e-45bd-8335-129bce0741d7.jpg)
-![h](https://user-images.githubusercontent.com/95908853/145554866-5aa6af8d-18bb-4c78-89dc-edf5170dff93.jpg)
-![i](https://user-images.githubusercontent.com/95908853/145554886-38b0023c-b634-4a38-a237-565d937948cf.jpg)
+![f](https://user-images.githubusercontent.com/95908853/145557820-49b291e0-3a73-4a5e-a3ed-9bdbd7715839.jpg)
+![g](https://user-images.githubusercontent.com/95908853/145557987-729d42cb-1cc4-48ba-b3ea-8dd4ac2e228d.jpg)
+![j](https://user-images.githubusercontent.com/95908853/145558078-e65b58b7-687f-4d62-980b-6348784e5f70.jpg)
+![h](https://user-images.githubusercontent.com/95908853/145558165-c95adb7c-1284-4bc6-8616-6e903bf56a80.jpg)
+![i](https://user-images.githubusercontent.com/95908853/145558242-31eed462-3e50-4333-ab80-12bbe803ac96.jpg)
 
 易烊千玺不仅是一位才华横溢的演艺人，更是正能量青少年的代表
 他努力谦逊，事业与学业双双丰收，工作上脚踏实地，敬业奉献，获得不少前辈的赞赏与看好
